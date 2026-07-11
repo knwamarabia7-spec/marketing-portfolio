@@ -12,6 +12,8 @@ Generate qualified leads among newcomers and visiting families in Canada through
 - Video Ad Scriptwriting
 - Copywriting
 - Content Strategy
+- Video Editing
+- Graphic Designing 
 
 ## Deliverables
 - 2 Video Ads
